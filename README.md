@@ -14,4 +14,4 @@ Data Science student at **NOVA IMS** in Lisbon, Portugal. Interested in machine 
 ### Contact
 
 - Email: [murshidkazi2025@gmail.com](mailto:murshidkazi2025@gmail.com)
-- LinkedIn: [linkedin.com/in/murshid-kazi](https://www.linkedin.com/in/murshid-kazi)
+- LinkedIn: [linkedin.com/in/murshid-kazi](https://www.linkedin.com/in/murshidkazi)
